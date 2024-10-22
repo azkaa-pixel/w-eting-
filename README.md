@@ -1,0 +1,1 @@
+## pertama kita bertemu anjayy 
